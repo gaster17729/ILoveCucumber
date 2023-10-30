@@ -1,2 +1,2 @@
 # ILoveCucumber
-for AAAAAAA
+for Kuzbas 2025
